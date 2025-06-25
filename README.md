@@ -1,0 +1,2 @@
+# Tubes-SIP-Kel.2-2025
+Tugas Besar Mata Kuliah Sistem Informasi Perencanaan dengan judul IDENTIFIKASI TINGKAT KERAWANAN KEBAKARAN HUTAN DAN LAHAN KOTA PALANGKARAYA
